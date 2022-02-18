@@ -2,4 +2,4 @@
 - :guitar: I’m interested in rock, blues, jazz and argentinian folk music.
 - 🌱 I’m currently learning about how to lead projects
 - 💞️ I’m looking to collaborate on Ferretería Williner
-- 📫 How to reach me ramonda@gmail.com
+- 📫 How to reach me ramondajavier@gmail.com
